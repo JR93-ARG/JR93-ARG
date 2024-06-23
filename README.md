@@ -6,7 +6,7 @@
 
 💞️ Estoy buscando colaborar en proyectos que involucren la resolución de problemas y soluciones innovadoras, especialmente aquellos que me ayuden a crecer como programador.
 
-📫 Cómo contactarme: Puedes contactarme por correo electrónico en [tu email] o conectarte conmigo en LinkedIn [tu perfil de LinkedIn].
+📫 Cómo contactarme: Puedes contactarme por correo electrónico en rodrigosalvador93@gmail.com o conectarte conmigo en LinkedIn https://www.linkedin.com/in/jrsm93/.
 
 😄 Pronombres: Él
 
